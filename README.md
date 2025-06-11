@@ -11,7 +11,7 @@
 
 ###
 
-<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif"  />
+<img align="right" height="150" src="https://cdn.discordapp.com/avatars/678287437583351808/67fa0aef77c472d50efcee84905b0fc1.png?size=2048"  />
 
 ###
 
