@@ -64,10 +64,10 @@
 
 ---
 
-## 🏳️‍🌈 Silly Femboy UwU / Tinkerer
+## 🏳️‍🌈 Silly Girl UwU / Tinkerer
 
 Hey there, I'm Nicki! 
-I'm a siwwy lil femboy that loves to tinker with everything tech and a whole lot of silly stuf :3
+I'm a siwwy lil girl that loves to tinker with everything tech and a whole lot of silly stuf :3
 You'll usually find me either coding, clicking circles, listening to music, or a combination of the 3.. 4? i cant count 😔
 <!--
 ---
